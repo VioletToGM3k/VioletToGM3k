@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @VioletToGM3k
+- 👀 I’m interested in I’m Interested In Making Apps And Coding!
+- 🌱 I’m A Student!
+- 💞️ I’m looking to collaborate on ...
+- 📫 Reach me on Discord VioletToGM3k#0921
